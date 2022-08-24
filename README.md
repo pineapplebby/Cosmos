@@ -1,2 +1,3 @@
-# Cosmos
-@linustouchtips Sry for leak 
+# lean god leaks
+
+Lean Lova
